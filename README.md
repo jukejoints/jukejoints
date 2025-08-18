@@ -4,7 +4,7 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/f1/09/2d/f1092d2fc4ce416d551f26c688e5f62c.jpg"/>
+  <img src="https://i.pinimg.com/736x/00/1b/d4/001bd4b442b22024c4e6b3b6bedd100e.jpg"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc]()
