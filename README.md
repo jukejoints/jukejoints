@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=mewkiaa&color=fef143&base=1000&style=flat&label=wip" />⠀
+<p align="center">
 
-<!--
-**jukejoints/jukejoints** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <img src="https://media1.tenor.com/m/YSTGx-dv6aEAAAAC/ichiryusai-madarame-persona-5.gif"/>
+</p>
 
-Here are some ideas to get you started:
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc]()
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
+
+
+
+remaking all of this
