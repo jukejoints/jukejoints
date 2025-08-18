@@ -4,7 +4,7 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/YSTGx-dv6aEAAAAC/ichiryusai-madarame-persona-5.gif"/>
+  <img src="https://i.pinimg.com/736x/f1/09/2d/f1092d2fc4ce416d551f26c688e5f62c.jpg"/>
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc]()
