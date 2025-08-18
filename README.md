@@ -9,7 +9,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[carrd](https://diirtywork.carrd.co)ㅤㅤ[ata](https://antikechi.atabook.org)ㅤㅤ[pronouns cc]()
 
-ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.
+ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤsign ataㅤㅤㅤㅤ.ㅤㅤㅤsinners, postal, and the boys fans...int...pls...?
 
 
 
