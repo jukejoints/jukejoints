@@ -8,5 +8,5 @@
 </p>
 
 <p align="center">
-  if ur gay then ur gay dont pretend that ur straight
+  if ur gay then ur gay dont pretend that ur straight WIP!!!!!!!!!!
 </p>
