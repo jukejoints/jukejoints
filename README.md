@@ -8,8 +8,11 @@
 </p>
 
 <p align="center">
-  if ur gay then ur gay dont pretend that ur straight WIP!!!!!!!!!!
+  POSTAL, SINNERS, AND DC + THE BOYS FANS INT NYEOWW!!
 </p>
+
+wip, ill yap here later
+
 
 11:07 PM[this a bird] I was thinking if ramen deltaruen my bad
 11:07 PM[this a bird] Kills mehelf
