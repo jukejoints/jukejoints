@@ -8,5 +8,5 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/28ee0587300e3a66d2d1cee9efad6af2/274c98dbbe3544e3-b8/s75x75_c1/1b53a6ac20d6664d15728ee4a6cc75f11d31ecf0.gifv"/>
+  if ur gay then ur gay dont pretend that ur straight
 </p>
