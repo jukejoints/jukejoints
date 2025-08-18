@@ -1,6 +1,6 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=mewkiaa&color=fef143&base=1000&style=flat&label=wip" />⠀
+<img src="https://komarev.com/ghpvc/?username=jukejoints&color=c41b20&base=1000&style=flat&label=queers-on-my-PAGE" />⠀
 <p align="center">
 
 <p align="center">
