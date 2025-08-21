@@ -43,6 +43,9 @@ we must do what it takes to survive!ㅤ ノ <i>
 11:07 PM[this a bird] I was thinking if ramen deltaruen my bad
   <br>
 11:07 PM[this a bird] Kills mehelf
+    <br>
+twinklander , w2i.] together we are twinks
+06:20 PM[homElander] yes
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/d6/d6/8d/d6d68dbaa0860d0465f8b53bc3ec6def.jpg"/>
