@@ -22,7 +22,9 @@ we must do what it takes to survive!ㅤ ノ <i>
        <td>
          <br>
 <p align="center">
- hi this is an ugly wip DO NOTT LOOK, Ok?
+ 𓎠𓎠ㅤ<b>NICO ノ JUNIPER or BRAMBLEㅤ✦
+     <br>
+18yo⠀⠀sys⎯⎯host⠀⠀meoww⠀⠀wip bruh
 </p>
 
  <br>
@@ -33,6 +35,8 @@ we must do what it takes to survive!ㅤ ノ <i>
 <p align="center">
   <img src="https://i.ibb.co/SDyvZBv9/bottom-ody-img.png"/>
 </p>
+
+  <br>
 
 <details>
               <summary> <td>$${\color{#c41b20}\verb|voices in the sea|}$$</td></summary>
