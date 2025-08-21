@@ -39,7 +39,11 @@ we must do what it takes to survive!ㅤ ノ <i>
   <br>
 
 <details>
-              <summary> <td>$${\color{#c41b20}\verb|voices in the sea|}$$</td></summary>
+              <summary> <td>$${\color{#c41b20}\verb|super secret shit do NAWT look, Ok?|}$$</td></summary>
 11:07 PM[this a bird] I was thinking if ramen deltaruen my bad
   <br>
 11:07 PM[this a bird] Kills mehelf
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/d6/d6/8d/d6d68dbaa0860d0465f8b53bc3ec6def.jpg"/>
+</p>
