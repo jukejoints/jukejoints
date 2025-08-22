@@ -24,7 +24,7 @@ catch me front pageㅤ,ㅤon the cover </i>
        <br>
 ㅤㅤ𓎠𓎠ㅤㅤ<b>NICOㅤノㅤJUNIPERㅤㅤ </b>
      <br>
-   <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> ㅤ...ㅤ<i>18yo, non⎯⎯human</i>
+   <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> ㅤ...ㅤ<i>18yo, ponytown player</i>
 
 ⠀mewowww
 </p>
