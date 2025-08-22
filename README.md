@@ -24,9 +24,9 @@ catch me front pageㅤ,ㅤon the cover </i>
        <br>
  𓎠𓎠ㅤ<b>NICO ノ JUNIPER </b>
      <br>
-   <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> <i>txt txt txt</i>
+   <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> <i>18yo, nonhuman</i>
 
-⠀18yo⠀⠀<b>sys</b>host⠀⠀<b>bi</b>racial⠀⠀nonhuman!
+⠀mewowww
 </p>
 
  <br>
