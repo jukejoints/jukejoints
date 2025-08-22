@@ -13,7 +13,7 @@ bleed 'til you've run out of yearsㅤ⎯⎯
 we must do what it takes to survive!ㅤ ノ <i>
   
 <p align="center">
-  <img src="https://i.ibb.co/5h1GNMjr/top-img-scy-maybe.png"/>
+  <img src=""/>
 </p>
 
    <div align="center">
@@ -33,7 +33,7 @@ we must do what it takes to survive!ㅤ ノ <i>
 </table>
 
 <p align="center">
-  <img src="https://i.ibb.co/SDyvZBv9/bottom-ody-img.png"/>
+  <img src=""/>
 </p>
 
   <br>
