@@ -22,9 +22,9 @@ catch me front pageㅤ,ㅤon the cover </i>
 <p align="center">
   <img src=https://64.media.tumblr.com/80823c1f40a9371b79a8daa2165e1b1a/81f8a9b6b60b1f0c-49/s75x75_c1/a665c436762c7b4d7f855a776204318a5f851201.pnj>
        <br>
- 𓎠𓎠ㅤ<b>NICO ノ JUNIPER or BRAMBLE</b> <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp>
+ 𓎠𓎠ㅤ<b>NICO ノ JUNIPER </b>
      <br>
-  <i>txt txt txt</i>
+   <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> <i>txt txt txt</i>
 
 ⠀18yo⠀⠀<b>sys</b>host⠀⠀<b>bi</b>racial⠀⠀nonhuman!
 </p>
