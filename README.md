@@ -4,13 +4,9 @@
 <p align="center">
   
 <p align="center">
-<i>drown in your sorrowㅤ&&.ㅤfears
+i'm a suckerㅤ,ㅤmake you suffer
   <br>
-choke on your bloodㅤ&&.ㅤyour tears
-  <br>
-bleed 'til you've run out of yearsㅤ⎯⎯
-  <br>
-we must do what it takes to survive!ㅤ ノ <i>
+catch me front pageㅤ,ㅤon the cover <i>
   
 <p align="center">
   <img src="https://i.ibb.co/HDmMbXR5/TAKE-A-BITE.png"/>
