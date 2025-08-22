@@ -1,4 +1,4 @@
-not done or sorted yet, Ok? just writing it all out first, Ok?
+not done or sorted yet, Ok? just writing it all out first, Ok? i WILL make graphics for ts....i will....i will!!!
 
 <p align="center">
 </a>
@@ -16,14 +16,15 @@ catch me front pageㅤ,ㅤon the cover </i>
 
    <div align="center">
 <table border="4">
-     <tr>
-       <td>
-         <br>
+  <tr>
+  <td>
+  <br>
+    
 <p align="center">
   <img src=https://64.media.tumblr.com/80823c1f40a9371b79a8daa2165e1b1a/81f8a9b6b60b1f0c-49/s75x75_c1/a665c436762c7b4d7f855a776204318a5f851201.pnj>
-       <br>
+    <br>
 ㅤㅤ𓎠𓎠ㅤㅤ<b>NICOㅤノㅤJUNIPERㅤㅤ </b>
-     <br>
+  <br>
    <img src=https://64.media.tumblr.com/176e079ab60c6bb4921230766ef42775/81f8a9b6b60b1f0c-8d/s75x75_c1/3d53745f722dbd4012c916cfa3c31310eef26d8e.webp> ㅤ...ㅤ<i>18yo, ponytown player</i>
 
 ⠀mewowww
@@ -35,11 +36,11 @@ catch me front pageㅤ,ㅤon the cover </i>
 </table>
 
 <details>
-              <summary> <td>$${\color{#c41b20}\verb|TOP 5 INTERESTS &. THE RUNNER UPS!|}$$</td></summary>
-  <b>Sinners，House M.D，Cyberpunk 2077，FNAF，</b>⠀⠀&.⠀⠀<b>Postal!</b>
+<summary> <td>$${\color{#c41b20}\verb|TOP 5 INTERESTS &. THE RUNNER UPS!|}$$</td></summary>
+<b>Sinners，House M.D，Cyberpunk 2077，FNAF，</b>⠀⠀&.⠀⠀<b>Postal!</b>
        <br>
-  <i>Runner ups?</i>ㅤ...ㅤDeltarune，EPIC，⠀⠀&.⠀⠀Star Wars!
-              </details>
+<i>Runner ups?</i>ㅤ...ㅤDeltarune，EPIC，⠀⠀&.⠀⠀Star Wars!
+ </details>
 
               
 <p align="center">
@@ -49,7 +50,7 @@ catch me front pageㅤ,ㅤon the cover </i>
   <br>
 
 <details>
-              <summary> <td>$${\color{#c41b20}\verb|super secret shit do NAWT look, Ok?|}$$</td></summary>
+  <summary> <td>$${\color{#c41b20}\verb|super secret shit do NAWT look, Ok?|}$$</td></summary>
 11:07 PM[this a bird] I was thinking if ramen deltaruen my bad
   <br>
 11:07 PM[this a bird] Kills mehelf
@@ -60,7 +61,7 @@ twinklander , w2i.] together we are twinks
 <p align="center">
   <img src="https://i.pinimg.com/736x/d6/d6/8d/d6d68dbaa0860d0465f8b53bc3ec6def.jpg"/>
 </p>
-              </details>
+  </details>
 
               
 <p align="center">
