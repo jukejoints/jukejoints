@@ -6,21 +6,21 @@ not done or sorted yet, Ok? just writing it all out first, Ok?
 <p align="center">
   
 <p align="center">
-i'm a suckerㅤ,ㅤmake you suffer
+<i>i'm a suckerㅤ,ㅤmake you suffer
   <br>
-catch me front pageㅤ,ㅤon the cover <i>
+catch me front pageㅤ,ㅤon the cover </i>
   
 <p align="center">
   <img src="https://i.ibb.co/HDmMbXR5/TAKE-A-BITE.png"/>
 </p>
 
    <div align="center">
-<table border="2">
+<table border="4">
      <tr>
        <td>
          <br>
 <p align="center">
- 𓎠𓎠ㅤ<b>NICO ノ JUNIPER or BRAMBLEㅤ✦
+ 𓎠𓎠ㅤ<b>NICO ノ JUNIPER or BRAMBLE</b>ㅤ✦
      <br>
 18yo⠀⠀sys⎯⎯host⠀⠀meoww⠀⠀wip bruh
 </p>
@@ -30,8 +30,15 @@ catch me front pageㅤ,ㅤon the cover <i>
   </tr>
 </table>
 
+<details>
+              <summary> <td>$${\color{#c41b20}\verb|TOP 5 INTERESTS &. THE RUNNER UPS!|}$$</td></summary>
+  <b>Sinners，House M.D，Cyberpunk 2077，FNAF，</b>⠀⠀&.⠀⠀<b>Postal!</b>
+       <br>
+  <i>Runner ups?</i>ㅤ...ㅤDeltarune，EPIC，⠀⠀&.⠀⠀Star Wars!
+              </details>
+
 <p align="center">
-  <img src=""/>
+  <img src="https://media1.tenor.com/m/aD4vN0yKtTcAAAAC/sinners-camabunga.gif"/>
 </p>
 
   <br>
