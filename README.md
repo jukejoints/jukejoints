@@ -22,7 +22,9 @@ catch me front pageㅤ,ㅤon the cover </i>
 <p align="center">
  𓎠𓎠ㅤ<b>NICO ノ JUNIPER or BRAMBLE</b>ㅤ✦
      <br>
-18yo⠀⠀sys⎯⎯host⠀⠀meoww⠀⠀wip bruh
+  <i>txt txt txt</i>
+
+⠀18yo⠀⠀<b>sys</b>host⠀⠀<b>bi</b>racial⠀⠀nonhuman!
 </p>
 
  <br>
