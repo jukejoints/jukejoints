@@ -1,3 +1,5 @@
+not done or sorted yet, Ok? just writing it all out first, Ok?
+
 <p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=jukejoints&color=c41b20&base=1000&style=flat&label=txt" />⠀
