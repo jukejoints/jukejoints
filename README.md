@@ -13,7 +13,7 @@ bleed 'til you've run out of yearsㅤ⎯⎯
 we must do what it takes to survive!ㅤ ノ <i>
   
 <p align="center">
-  <img src=""/>
+  <img src="https://i.ibb.co/HDmMbXR5/TAKE-A-BITE.png"/>
 </p>
 
    <div align="center">
