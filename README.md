@@ -37,8 +37,9 @@ catch me front pageㅤ,ㅤon the cover </i>
   <i>Runner ups?</i>ㅤ...ㅤDeltarune，EPIC，⠀⠀&.⠀⠀Star Wars!
               </details>
 
+              
 <p align="center">
-  <img src="https://media1.tenor.com/m/aD4vN0yKtTcAAAAC/sinners-camabunga.gif"/>
+  <img src="https://64.media.tumblr.com/1ba926f9aa0c2d80b706d19530689021/5f884ff44fe03981-3d/s2048x3072/39ca2f6313e5fd29656f923c925f4a89478e2341.pnj"/>
 </p>
 
   <br>
@@ -54,4 +55,10 @@ twinklander , w2i.] together we are twinks
 
 <p align="center">
   <img src="https://i.pinimg.com/736x/d6/d6/8d/d6d68dbaa0860d0465f8b53bc3ec6def.jpg"/>
+</p>
+              </details>
+
+              
+<p align="center">
+  <img src="https://media1.tenor.com/m/aD4vN0yKtTcAAAAC/sinners-camabunga.gif"/>
 </p>
