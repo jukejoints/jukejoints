@@ -1,4 +1,4 @@
-not done or sorted yet, Ok? just writing it all out first, Ok? i WILL make graphics for ts....i will....i will!!!
+not done or sorted yet, Ok? just writing it all out first, Ok? i WILL make graphics for ts....i will....i will!!! WHAT IF sam winchester themed..
 
 <p align="center">
 </a>
