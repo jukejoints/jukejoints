@@ -14,7 +14,8 @@ catch me front pageㅤ,ㅤon the cover </i>
   <img src="https://i.ibb.co/HDmMbXR5/TAKE-A-BITE.png"/>
 </p>
 
-
+10:48 PM[better clover] :/ too bad so sad
+  <br>
 11:07 PM[this a bird] I was thinking if ramen deltaruen my bad
   <br>
 11:07 PM[this a bird] Kills mehelf
