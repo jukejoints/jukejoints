@@ -12,10 +12,14 @@
   <img src="https://i.ibb.co/93dYPn7m/alt-graphic.png"/>
 </p>
 
+  <details align="center">
+<summary> <img src="https://64.media.tumblr.com/80823c1f40a9371b79a8daa2165e1b1a/81f8a9b6b60b1f0c-49/s75x75_c1/a665c436762c7b4d7f855a776204318a5f851201.pnj"/>⠀⠀ 001⠀⠀ ,⠀⠀ INFORMATION⠀⠀ </summary>
+        <br>
 <p align="center">
 <b> hmm txt </b>  <img src="https://64.media.tumblr.com/6f029d285fd05396b69a752a2d856091/81f8a9b6b60b1f0c-f4/s75x75_c1/439bfba57f80378292a39e5bb6bec39b8a2d9f2d.webp"/> <b> lalaalaaa </b>
     <br>
 <i> moreee </i>
+</details>
 
   <details align="center">
 <summary> quotes from queers </summary>
