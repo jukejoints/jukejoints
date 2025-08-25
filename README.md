@@ -4,15 +4,18 @@
 
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=jukejoints&color=3e0302&base=1000&style=flat&label=hunted_down" />⠀
+<img src="https://64.media.tumblr.com/48bd86f552741afaa88cdf0b1298cac2/81f8a9b6b60b1f0c-44/s75x75_c1/e09ce871bd0b99f909fc5ac8221cc9aa82038fc0.webp"/> ⠀⠀ <img src="https://komarev.com/ghpvc/?username=jukejoints&color=3e0302&base=1000&style=flat&label=hunted_down" /> ⠀⠀ ◟ ✦ ◝
 <p align="center">
+
   
 <p align="center">
-<i> werk in progress >W< </i>
-  
-<p align="center">
-  <img src="https://i.ibb.co/7tSjbbtb/simongraphicforgithub.png"/>
+  <img src="https://i.ibb.co/93dYPn7m/alt-graphic.png"/>
 </p>
+
+<p align="center">
+<b> hmm txt </b>  <img src="https://64.media.tumblr.com/6f029d285fd05396b69a752a2d856091/81f8a9b6b60b1f0c-f4/s75x75_c1/439bfba57f80378292a39e5bb6bec39b8a2d9f2d.webp"/> <b> lalaalaaa </b>
+    <br>
+<i> moreee </i>
 
   <details align="center">
 <summary> quotes from queers </summary>
