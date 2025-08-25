@@ -11,7 +11,7 @@ i might make this postal theme, yell at me to actually make this pls
 catch me front pageㅤ,ㅤon the cover </i>
   
 <p align="center">
-  <img src="https://i.ibb.co/HDmMbXR5/TAKE-A-BITE.png"/>
+  <img src=""/>
 </p>
 
 10:48 PM[better clover] :/ too bad so sad
