@@ -9,7 +9,7 @@
 
   
 <p align="center">
-  <img src="https://i.ibb.co/93dYPn7m/alt-graphic.png"/>
+  <img src="https://i.ibb.co/93dYPn7m/alt-graphic.png" width="600" height="600%"/>
 </p>
 
   <details align="center">
