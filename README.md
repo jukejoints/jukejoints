@@ -22,13 +22,3 @@ catch me front pageㅤ,ㅤon the cover </i>
     <br>
 twinklander , w2i.] together we are twinks
 06:20 PM[homElander] yes
-
-<p align="center">
-  <img src="https://i.pinimg.com/736x/d6/d6/8d/d6d68dbaa0860d0465f8b53bc3ec6def.jpg"/>
-</p>
-  </details>
-
-              
-<p align="center">
-  <img src="https://media1.tenor.com/m/aD4vN0yKtTcAAAAC/sinners-camabunga.gif"/>
-</p>
