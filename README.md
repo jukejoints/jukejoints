@@ -48,6 +48,10 @@ WIPP ill make this look better later⠀⠀++ wip </i>
     <br>
 twinklander , w2i.] together we are twinks
 06:20 PM[homElander] yes
+        <br>
+5:18 PM[this fandom pmo] gggulp what would you do... if i abstracted today...?
+    <br>
+[this fandom pmo] jax... i dont think i can survive in this digital circus alone :<
 </details>
 
 <p align="center">
