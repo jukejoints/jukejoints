@@ -52,6 +52,8 @@ twinklander , w2i.] together we are twinks
 5:18 PM[this fandom pmo] gggulp what would you do... if i abstracted today...?
     <br>
 [this fandom pmo] jax... i dont think i can survive in this digital circus alone :<
+                                                                                      <br>
+05:39 PM[shes gone yandere for me] yuriiiiiii 🤤
 </details>
 
 <p align="center">
