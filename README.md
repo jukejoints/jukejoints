@@ -4,12 +4,12 @@
 
 <p align="center">
 </a>
-<img src="https://64.media.tumblr.com/48bd86f552741afaa88cdf0b1298cac2/81f8a9b6b60b1f0c-44/s75x75_c1/e09ce871bd0b99f909fc5ac8221cc9aa82038fc0.webp"/> ⠀⠀ <img src="https://komarev.com/ghpvc/?username=jukejoints&color=3e0302&base=1000&style=flat&label=hunted_down" /> ⠀⠀ ◟ ✦ ◝
+<img src="https://64.media.tumblr.com/48bd86f552741afaa88cdf0b1298cac2/81f8a9b6b60b1f0c-44/s75x75_c1/e09ce871bd0b99f909fc5ac8221cc9aa82038fc0.webp"/> ⠀⠀ <img src="https://komarev.com/ghpvc/?username=jukejoints&color=3e0302&base=1000&style=flat&label= _𓎠𓎠_ _txt_ " /> ⠀⠀ ◟ ✦ ◝
 <p align="center">
 
   
 <p align="center">
-  <img src="https://i.pinimg.com/736x/cc/9d/19/cc9d19688a899740dde9f34645258941.jpg" width="600" height="600%"/>
+  <img src="https://i.ibb.co/xq72QVMH/blandboyxpinkieartpngforgithubb.png" width="400" height="400%"/>
 </p>
 
   <details align="center">
