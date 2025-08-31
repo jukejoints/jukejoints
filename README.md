@@ -1,3 +1,5 @@
+finsihing this rn, if it looks ugly or questionable dont ask
+
 <p align="center">
   <img src="https://i.ibb.co/rKBWmhGh/top-div.png"/>
 </p>
