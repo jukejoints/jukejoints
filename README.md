@@ -1,5 +1,3 @@
-finsihing this rn, if it looks ugly or questionable dont ask
-
 <p align="center">
   <img src="https://i.ibb.co/rKBWmhGh/top-div.png"/>
 </p>
@@ -46,10 +44,17 @@ finsihing this rn, if it looks ugly or questionable dont ask
 <summary> Look here..!! </summary>
    <img src="https://i.ibb.co/Jw47jVHN/lexi-quote.png"/>  <img src="https://i.ibb.co/q3FCVQSW/LMAOOOO.png"/>
 </details>
+<br>
 
 <p align="center">
-  Sign Ata⠀ ノ⠀ Straw <3
+  𓎠𓎠𓎠𓎠𓎠𓎠
 </p>
+
+<br>
+ <details align="center">
+<summary> Sign Ata⠀ ノ⠀ Straw <3 </summary>
+  planning to add a feww more things but done for now!
+</details>
 
 <br>
 
