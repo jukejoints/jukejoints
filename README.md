@@ -15,6 +15,28 @@ finsihing this rn, if it looks ugly or questionable dont ask
   <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaW04NzZzaWR3cnVreDUzdnpzbWQ1Nmk3NWc2djQ1enF1bTMwa2U4ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/0Vm9KB8DsWkIxZy0QV/giphy.gif" width="600" height="600%"/>
 </p>
 
+  <details align="center">
+<summary> Before You Interact </summary>
+    i don't accept random friend, i only accept them if we've talked at least twice before that. the only time i'll accept them out of the blue is if you're a friend of a friend or it's to send me a link, an emergency, etc.
+        <br>
+    𓎠𓎠𓎠𓎠𓎠𓎠
+    <br>
+    please don't expect me to be able to hold conversations for very long. or like, at all, it's my one true weakness and something i think i'll always struggle with. forgive me.
+        <br>
+    𓎠𓎠𓎠𓎠𓎠𓎠
+    <br>
+    it takes me a while to be comfortable around people and even longer to really befriend them, i'm not always gonna want to be AROUND you. so if i end up not replying, don't take it personally. i just aint up for it that day. i'm veryyy seletcive and private with a bunch of walls built up, it takes awhile for me to rreallyy trust people.
+            <br>
+    𓎠𓎠𓎠𓎠𓎠𓎠
+    <br>
+    WIPP
+</details>
+
+ <details align="center">
+<summary> Look here..!! </summary>
+   <img src="https://i.ibb.co/Jw47jVHN/lexi-quote.png"/>  <img src="https://i.ibb.co/q3FCVQSW/LMAOOOO.png"/>
+</details>
+
 <p align="center">
   Currently a work in progress,⠀⠀Will expand upon soon!
   <br>
