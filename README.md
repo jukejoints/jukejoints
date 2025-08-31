@@ -1,7 +1,7 @@
 hi i remaking AGAIN, ok?
 
 <p align="center">
-  <img src="https://i.ibb.co/rKBWmhGh/top-div.png"/>
+  <img src="https://64.media.tumblr.com/75474d3e50af4eca9ad0c741ff4a3dae/5beec7c4abd65233-9f/s540x810/377d73e7bcaec9b36578d20b04adabcd5d47bc08.pnj"/>
 </p>
 <br>
 
@@ -66,5 +66,5 @@ hi i remaking AGAIN, ok?
 
 <br>
 <p align="center">
-  <img src="https://i.ibb.co/t5GVSpd/bottom-div.png"/>
+  <img src="https://64.media.tumblr.com/75474d3e50af4eca9ad0c741ff4a3dae/5beec7c4abd65233-9f/s540x810/377d73e7bcaec9b36578d20b04adabcd5d47bc08.pnj"/>
 </p>
