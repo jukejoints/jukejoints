@@ -15,7 +15,7 @@
 
   <details align="center">
 <summary> Before You Interact </summary>
-    i don't accept random friend reqs, i only accept them if we've talked at least twice before that. the only time i'll accept them out of the blue is if you're a friend of a friend or it's to send me a link, an emergency, etc.
+    i don't accept random friend reqs, i only accept them if we've talked at least once. the only time i'll accept them out of the blue is if you're a friend of a friend or it's to send me a link, an emergency, etc.
         <br>
     𓎠𓎠𓎠𓎠𓎠𓎠
     <br>
