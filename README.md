@@ -29,17 +29,25 @@ finsihing this rn, if it looks ugly or questionable dont ask
             <br>
     𓎠𓎠𓎠𓎠𓎠𓎠
     <br>
-    WIPP
+    IFFF i don't have "c+h" DIRECTLY in my name, ASK before you just do so UNLESS you're in party...they're excempt, I gen just need a warning before i'm approached and sat with out of the blue. Ok? ty <3
+                  <br>
+    𓎠𓎠𓎠𓎠𓎠𓎠
+    <br>
+      adding more at some point.
 </details>
+ <br>
 
+<p align="center">
+  𓎠𓎠𓎠𓎠𓎠𓎠
+</p>
+
+ <br>
  <details align="center">
 <summary> Look here..!! </summary>
    <img src="https://i.ibb.co/Jw47jVHN/lexi-quote.png"/>  <img src="https://i.ibb.co/q3FCVQSW/LMAOOOO.png"/>
 </details>
 
 <p align="center">
-  Currently a work in progress,⠀⠀Will expand upon soon!
-  <br>
   Sign Ata⠀ ノ⠀ Straw <3
 </p>
 
