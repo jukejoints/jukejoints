@@ -12,7 +12,7 @@ hi i remaking AGAIN, ok?
 
 
 <p align="center">
-  <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaW04NzZzaWR3cnVreDUzdnpzbWQ1Nmk3NWc2djQ1enF1bTMwa2U4ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/0Vm9KB8DsWkIxZy0QV/giphy.gif" width="600" height="600%"/>
+  <img src="https://64.media.tumblr.com/09241dca28436aa8eb9693f4dabfa64d/979b938141ef21a4-06/s540x810/5986cb27010d1a4a8bc8941294bf3b9017a15459.pnj" width="400" height="400%"/>
 </p>
 
   <details align="center">
