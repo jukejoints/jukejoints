@@ -61,7 +61,7 @@ hi i remaking AGAIN, ok?
 <br>
 
 <p align="center">
-<a href="https://antikechi.atabook.org" target="_blank">Atabook</a>  <a href="https://cybercanvas.straw.page" target="_blank">​Strawpage​</a>  <a href="https://pronouns.cc/@crywanking" target="_blank">​Prns.cc</a>
+<a href="https://antikechi.atabook.org" target="_blank">Atabook</a>  <a href="https://cybercanvas.straw.page" target="_blank">​Strawpage​</a>  <a href="" target="_blank">​Prns.cc</a>
 </p>
 
 <br>
