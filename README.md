@@ -1,19 +1,12 @@
-hi i remaking AGAIN, ok?
-
 <p align="center">
-  <img src="https://64.media.tumblr.com/75474d3e50af4eca9ad0c741ff4a3dae/5beec7c4abd65233-9f/s540x810/377d73e7bcaec9b36578d20b04adabcd5d47bc08.pnj"/>
+  <img src="https://i.pinimg.com/736x/0d/9a/eb/0d9aeb17b779b8f957ad6bfcba984bc3.jpg" width="800" height="800%"/>
 </p>
-<br>
-
+ <br>
+ 
 <p align="center">
-</a>
-◟ ✦ ◝ ⠀⠀ <img src="https://komarev.com/ghpvc/?username=jukejoints&color=3a3033&base=1000&style=flat&label= _𓎠𓎠_ _GOLDEN_STATUES_ _ " /> ⠀⠀ ◟ ✦ ◝
-<p align="center">
-
-
-<p align="center">
-  <img src="https://64.media.tumblr.com/09241dca28436aa8eb9693f4dabfa64d/979b938141ef21a4-06/s540x810/5986cb27010d1a4a8bc8941294bf3b9017a15459.pnj" width="400" height="400%"/>
+<a href="https://antikechi.atabook.org" target="_blank">Atabook</a>  <a href="https://cybercanvas.straw.page" target="_blank">​Strawpage​</a>  <a href="" target="_blank">​Prns.cc</a>
 </p>
+ <br>
 
   <details align="center">
 <summary> Before You Interact </summary>
@@ -59,12 +52,3 @@ hi i remaking AGAIN, ok?
 </details>
 
 <br>
-
-<p align="center">
-<a href="https://antikechi.atabook.org" target="_blank">Atabook</a>  <a href="https://cybercanvas.straw.page" target="_blank">​Strawpage​</a>  <a href="" target="_blank">​Prns.cc</a>
-</p>
-
-<br>
-<p align="center">
-  <img src="https://64.media.tumblr.com/75474d3e50af4eca9ad0c741ff4a3dae/5beec7c4abd65233-9f/s540x810/377d73e7bcaec9b36578d20b04adabcd5d47bc08.pnj"/>
-</p>
